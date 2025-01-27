@@ -1,4 +1,4 @@
-Hi there I'm John, a seasoned Project Manager with a 16-year career. My journey includes:
+Hi there I'm John, a seasoned Project Manager professional with a 16-year career. My journey includes:
 
 - Corporate (13 years): Started in programming, advanced through implementation, application development, and process improvement project management.
 
